@@ -38,4 +38,4 @@ E-books Acquired
 Statistics
 ----------
 
-**Pages read:* 4400
+**Pages read:** 4400

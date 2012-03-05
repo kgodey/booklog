@@ -35,6 +35,6 @@ E-books Acquired
 Statistics
 ----------
 
-**Pages read:* 1079
+**Pages read:** 1079
 
-**Money spent:* $2.99
+**Money spent:** $2.99
