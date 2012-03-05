@@ -10,8 +10,8 @@ Books read and acquired in 2012.
    feb/summary
    mar/summary
 
-Summary
--------
+2012 So Far
+-----------
 
 **Physical books read:**
 
