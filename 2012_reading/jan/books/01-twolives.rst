@@ -6,13 +6,13 @@ Details
 
 **Genre:** non-fiction, memoir
 
-**Date finished:** Jan 2, 2011
+**Date finished:** Jan 2, 2012
 
 **Pages:** 499
 
 **Format:** paperback
 
-**Owned Pre-2012?** Yes
+**Owned Pre-2012?** yes
 
 Review
 ------
