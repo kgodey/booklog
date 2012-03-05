@@ -2,7 +2,7 @@
 ============
 
 .. toctree::
-   :maxdepth: 3
+   :maxdepth: 2
 
    jan_2012
    feb_2012
