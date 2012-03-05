@@ -1,18 +1,28 @@
 2012 Reading
 ============
 
+Books read and acquired in 2012.
+
 .. toctree::
    :maxdepth: 2
 
-   jan_2012
-   feb_2012
-   mar_2012
-   apr_2012
-   may_2012
-   jun_2012
-   jul_2012
-   aug_2012
-   sep_2012
-   oct_2012
-   nov_2012
-   dec_2012
+   jan/summary
+   feb/summary
+   mar/summary
+
+Summary
+-------
+
+**Physical books read:**
+
+**E-books read:**
+
+**Physical books acquired:**
+
+**E-books acquired:**
+
+**Pre-2012 books read:**
+
+**Total pages read:**
+
+**Total money spent (March and onwards):**
