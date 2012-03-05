@@ -28,3 +28,5 @@ This book is absolutely hilarious, but also makes you feel pretty touched in pla
 I thought the concept of the book was pretty awesome, too. It allowed the author to affectionately satirise common fantasy tropes and our perceptions of them, while remaining true to the fantasy genre. I loved it the same way I loved The Princess Bride.
 
 Howl’s Moving Castle was pretty great, but after reading this, I’ve realised that Diana Wynne Jones definitely deserves her reputation.
+
+*Jan 16, 2012, 3.15 pm*

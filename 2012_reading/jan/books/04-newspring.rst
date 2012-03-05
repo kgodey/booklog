@@ -24,3 +24,5 @@ The book assumes that you’re familiar with The Wheel of Time, the various orga
 It’s definitely interesting to see Moiraine and Siuan, both so inscrutable and awe-inspiring in the main series, as young and immature women still finding their way in the world. Their friendship is really affectionate and well-portrayed. Lan is pretty much unchanged, he’s still honourable, sensible, dutiful and proud. We get to find out a lot of backstory, for instance why Moiraine was searching for the Dragon Reborn, how Lan and Moiraine ended up trusting each other so much, what the Black Ajah had been up to, the decline of the White Tower starting to show.
 
 Basically, read it if you love The Wheel of Time. If you haven’t read The Wheel of Time, read at least the first few books in the series before reading this. Skip it if you don’t love The Wheel of Time.
+
+*Jan 11, 2012, 2.03 pm*

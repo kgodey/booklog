@@ -26,3 +26,5 @@ As usual, there is a lot of political intrigue and sudden plot twists that make 
 Anyway, like the previous review of Elantris, I don’t really have much to say. I loved the book.
 
 One cool thing about Warbreaker is that it is available for free on Brandon Sanderson’s website, as well as all his previous drafts of the book. This is a really cool, especially for people who want to write books. He also has annotations for each chapter. All of this is available at his Warbreaker portal.
+
+*Jan 15, 2012, 11.36 am*

@@ -28,3 +28,5 @@ Some of the ideas mentioned and explored in this book are pretty interesting –
 The characters are interesting to start off with, but like I said above, halfway into the book, they get pretty dull. I also found the descriptions of Louis Wu’s (constant) sex kind of awful (“she impaled herself” is an awful description.) Also, the writing felt a bit dated; I think our conceptions of space were very different in the 70s.
 
 I probably would not have stuck through this book if it was not part of my 25 book challenge, but I’m glad I did because it’s a classic, and at least I’ve read it now! I probably won’t be reading the other books in the series soon, but maybe eventually.
+
+*Jan 9, 2012, 8.42 pm*

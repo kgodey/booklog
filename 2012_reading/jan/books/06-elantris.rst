@@ -26,3 +26,5 @@ I really liked this book. Sarene and Raoden are both people that you want to roo
 As usual with a Brandon Sanderson  book, the magic system was very well thought out. As also seems to be the case with his standalone fiction (I’m looking at you , The Alloy of Law), every loose thread is not explained at the end, which is frustrating because now I really want a sequel!
 
 I don’t think I can say very much more about this book – I was pretty much completely immersed in the world and didn’t get out of it enough to think about what I liked or disliked about it. I’m really excited to read Brandon Sanderson’s annotations of Elantris, available for free online.
+
+*Jan 14, 2012, 2.20 pm*

@@ -28,3 +28,5 @@ Just like Fly by Night, Fly Trap is a self-contained adventure, and I don’t th
 Mosca and Eponymous are fun protagonists, and their half-antagonistic, half-affectionate relationship is very endearing. I particularly loved the scene where Mosca makes up some choice insults in order to get Eponymous out of trouble, and his reaction to it. Even though both Mosca and Eponymous would deny having a sense of right and wrong, they definitely do – especially when it comes to saving each other from trouble. Saracen was a hoot (or rather, a honk) as always, but I was a bit disappointed that he wasn’t a bit more murderous.
 
 Hardinge is a total delight to read – she loves playing with words, and her descriptions are inventive and charming. I think that she is one of the best young adult writers of today, having also read her The Lost Conspiracy. I don’t think she’s nearly as popular as she should be.
+
+*Jan 18, 2012, 9.26 pm*

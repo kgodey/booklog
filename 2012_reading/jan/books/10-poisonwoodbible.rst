@@ -28,3 +28,5 @@ I identified most with Adah – her limp, her palindrome poems and her quirky bu
 I didn’t know very much about the history of the Congo/Zaire, so the background of the book was fascinating. However, Leah and Rachel seemed to embody extremes on the political spectrum, and although I liked the contrast, I wouldn’t take either of their opinions as fact. (I think that they are plausible opinions for the characters, though.) I’ve seen criticisms that the author was being preachy, but I think it was just Leah’s character being preachy and Rachel being a little underdeveloped at the end. I kept hoping that Rachel would redeem herself, but she didn’t ever seem to.
 
 There is no neat little bow of an ending, and the characters remain flawed in the end, even though they grow up noticeably. That’s why I don’t read books like this (general award/prize winning books) often – even though I appreciate them and I think they are masterfully done, they leave me very sad. Please note that I don’t mean to insult The Poisonwood Bible by lumping it into an arbitrary category – I think it was unique.
+
+*Jan 23, 2012, 9.48 pm*

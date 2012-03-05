@@ -32,3 +32,5 @@ I think the structure of the book could have been easier to read – part of it 
 I also appreciated a lot of the trouble that they went to to make the dinner accurate – mock turtle soup using calf-brains, and making gelatin from calf-feet stand out. It sounded like a horrendous amount of work.
 
 Apparently PBS did a special to accompany the book (or vice versa), also called Fannie’s Last Supper. `Here is the trailer for it <http://www.youtube.com/watch?v=hnvg6oEl7pQ>`. I really want to watch it, but I’m not sure how it can be obtained.
+
+*Jan 6, 2012, 2.00 pm*

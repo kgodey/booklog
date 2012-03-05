@@ -28,3 +28,5 @@ Vidya is a likeable protagonist (although it’s hard to go wrong with a girl th
 I also liked the setting a lot, despite being a fairly lighthearted and simple book, the various factions in India during this very volatile time period were portrayed pretty well. The non-violent Gandhians that believed in ahimsa, the people that believed that independence required violence, the sycophants to the British. There were British police that wanted to stop protests with violence, but there was also a kindly British man.
 
 Overall, a pretty enjoyable and easy read.
+
+*Jan 13, 2012, 10.30 am*
