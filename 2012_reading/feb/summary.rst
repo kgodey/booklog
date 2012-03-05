@@ -78,3 +78,8 @@ E-books Acquired
 #. *The Weight of Blood* by David Dalglish – acquired Feb 29, Kindle for Mac.
 #. *Unfiltered* by Stefan Ellery – acquired Feb 29, Kindle for Mac.
 #. *Sapphire of the Fairies* by Richard S. Tuttle – acquired Feb 29, Kindle for Mac.
+
+Statistics
+----------
+
+**Pages read:* 4443

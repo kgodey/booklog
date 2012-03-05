@@ -10,19 +10,21 @@ Books read and acquired in 2012.
    feb/summary
    mar/summary
 
-2012 So Far
------------
+Statistics
+----------
 
-**Physical books read:**
+As of March 4, 2012:
 
-**E-books read:**
+**Physical books read:** 21
 
-**Physical books acquired:**
+**E-books read:** 11
 
-**E-books acquired:**
+**Physical books acquired:** 20
 
-**Pre-2012 books read:**
+**E-books acquired:** 53
 
-**Total pages read:**
+**Pre-2012 books (BOMBS) read:** 13
 
-**Total money spent (March and onwards):**
+**Total pages read:** 9922
+
+**Total money spent (March and onwards):** $2.99

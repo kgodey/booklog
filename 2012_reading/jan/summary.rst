@@ -34,3 +34,8 @@ E-books Acquired
 ----------------
 
 #. *Yseult* by Ruth Nestvold – acquired Jan 22, e-book, member giveaway
+
+Statistics
+----------
+
+**Pages read:* 4400
