@@ -9,7 +9,6 @@ Reviewed books
 Some of these reviews are pretty informal (mostly the earlier ones), since they were just forum posts.
 
 .. toctree::
-   :numbered:
    :glob:
 
    books/*
