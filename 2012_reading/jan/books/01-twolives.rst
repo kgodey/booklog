@@ -10,6 +10,8 @@ Details
 
 **Format:** paperback
 
+**Owned Pre-2012?** Yes
+
 Review
 ------
 
