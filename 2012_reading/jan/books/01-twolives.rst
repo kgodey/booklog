@@ -4,6 +4,8 @@ Two Lives by Vikram Seth
 Details
 -------
 
+**Genre:** non-fiction, memoir
+
 **Date finished:** Jan 2, 2011
 
 **Pages:** 499
