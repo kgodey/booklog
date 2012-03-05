@@ -1,14 +1,21 @@
 2011 Reading
 ============
 
-2011 Books with thoughts or reviews: 
+This list may be incomplete, as I wasn't keeping meticulous records.
+
+Reviewed books
+--------------
+
+Some of these reviews are pretty informal (mostly the earlier ones), since they were just forum posts.
 
 .. toctree::
+   :numbered:
    :glob:
 
    books/*
 
-Full list of books read in 2011. This list may be incomplete, as I wasn't keeping meticulous records.
+All books
+---------
 
 #. *Cards on the Table* by Agatha Christie
 #. *The Secret Adversary* by Agatha Christie
